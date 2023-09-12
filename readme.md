@@ -10,4 +10,5 @@ Luciana Rossi
 
 Thamara Ramos 
 
-Pamela Correa
+# **Pamela Correa**
+## Chile :sweat_smile:
