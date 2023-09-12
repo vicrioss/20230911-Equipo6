@@ -1,3 +1,9 @@
 Victoria Ríos
-Estefania Delgado Hoyos
+
+Thamara Ramos
 Solymar Quiaro
+Sara Mendoza
+
+
+
+Estefania Delgado Hoyos
