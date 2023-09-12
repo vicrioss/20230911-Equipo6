@@ -1,9 +1,5 @@
-Victoria Ríos
+# Sara Mendoza
 
-Thamara Ramos
+## Colombia
+Vivo en Colombia 💓
 
-Solymar Quiaro
-
-Sara Mendoza
-
-Estefania Delgado Hoyos
