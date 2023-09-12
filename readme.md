@@ -1,11 +1,3 @@
-Victoria Ríos
-
-Thamara Ramos
-
-Solymar Quiaro
-
-Sara Mendoza
-
-Estefania Delgado Hoyos
-
-Luciana Rossi
+# **Victoria Ríos**
+## Uruguay
+Uruguay :blue_heart:
