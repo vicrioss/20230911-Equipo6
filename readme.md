@@ -1,1 +1,2 @@
 Victoria Ríos
+Thamara Ramos
