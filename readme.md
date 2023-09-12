@@ -1,11 +1,4 @@
-Victoria Ríos
 
-Thamara Ramos
-
-Solymar Quiaro
-
-Sara Mendoza
-
-Estefania Delgado Hoyos
-
-Luciana Rossi
+# **Luciana Rossi**
+## Uruguay
+U ru guay :unicorn:
