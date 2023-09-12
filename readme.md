@@ -1,6 +1,8 @@
 Victoria Ríos
 
-Thamara Ramos
+# Thamara Ramos
+## Venezuela
+### Chile :grinning:
 
 Solymar Quiaro
 
